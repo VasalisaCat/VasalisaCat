@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VasalisaCat
+- 👀 I’m interested in arts, information sciences, languages
+- 🌱 I’m currently learning mad skills
